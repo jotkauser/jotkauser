@@ -11,5 +11,4 @@
 - 🔢 Discord server: [xiaom1hype's basement](https://discord.gg/XVsXbRwQUZ)
 
 ### Social media
-- 🎥 TikTok: [@xiaom1hype](https://tiktok.com/@xiaom1hype)
 - 🐦 Twitter: [@realmotylek](https://x.com/realmotylek)
