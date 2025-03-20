@@ -8,7 +8,5 @@
 
 ### Contact
 - ✈ Telegram: [@realmotylek](https://t.me/realmotylek)
-- 🔢 Discord server: [xiaom1hype's basement](https://discord.gg/XVsXbRwQUZ)
-
 ### Social media
 - 🐦 Twitter: [@realmotylek](https://x.com/realmotylek)
